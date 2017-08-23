@@ -12,7 +12,7 @@ Harper Valley P.T.A.||||
 Hey Jude |Beatles|||
 Honey ||||
 Hush ||Joe South|| 
-Lady Willpower ||||
+Lady Willpower |Gary Puckett & The Union Gap|||
 Look to your Soul ||||
 Paper Cup ||||
 Slick ||||
